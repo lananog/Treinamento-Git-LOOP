@@ -22,4 +22,4 @@
 
 ## **Conceitos adicionais**
 
-asdsadads ![haHAA](https://i.imgur.com/w4sr7bp.png)
+![](https://i.imgur.com/w4sr7bp.png)
